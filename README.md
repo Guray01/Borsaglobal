@@ -1,0 +1,2 @@
+# Borsaglobal
+kişisel site
